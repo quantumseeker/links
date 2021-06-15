@@ -1,3 +1,8 @@
 # links
-<a href="https://b-ok.cc/s/mike%20hockney">Visit Mike Hockney</a>
-Mike Hockey Website: https://b-ok.cc/s/mike%20hockney
+06/15/21
+
+Looking at books by an esoteric non-academic writer named Mike Hockney
+
+Link to B-ok search with his books:
+https://b-ok.cc/s/mike%20hockney
+
