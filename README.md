@@ -1,5 +1,5 @@
 ## Reference List
-# These are links I've begun compiling on June 15, 2021. Feel Free to peruse and see if anything interests you.
+# These are links I've begun compiling. Feel Free to peruse and see if anything interests you.
 
 **06/15/21**
 
