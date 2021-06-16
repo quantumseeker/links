@@ -1,5 +1,5 @@
 ## Reference List
-# These are links I've begun compiling. Feel Free to peruse and see if anything interests you.
+# These are links I've begun compiling.
 
 **06/15/21**
 
