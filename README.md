@@ -1,5 +1,5 @@
 ## Reference List
-# These are links I've compiled. I'll try to have a mixture of primary and secondary work. I'll be adding commentary as necessary, but I'll be using Substack for essays in the future. 
+## These are links I've compiled. I'll try to have a mixture of primary and secondary work. I'll be adding commentary as necessary, but I'll be using Substack for essays in the future. 
 
 
 **06.23.21**
@@ -12,7 +12,7 @@ First we have his magnum opus work, *The Treason of the Intellectuals* (1928)
 
 https://b-ok.cc/book/2659545/0daead
 
-Secondary Literature
+### Secondary Literature
 
 Article *The treason of the intellectuals & “The Undoing of Thought”* by Roger Kimball (1992)
 
