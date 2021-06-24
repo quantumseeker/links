@@ -2,7 +2,7 @@
 ## These are links I've compiled. I'll try to have a mixture of primary and secondary work. I'll be adding commentary as necessary, but I'll be using Substack for essays in the future. 
 
 
-**06.23.21**
+__06.23.21__
 
 Looking at literature I found in relation to Julien Benda (1867-1956)
 
