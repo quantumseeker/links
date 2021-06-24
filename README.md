@@ -1,6 +1,5 @@
 ## Reference List
-## These are links I've compiled. I'll try to have a mixture of primary and secondary work. I'll be adding commentary as necessary, but I'll be using Substack for essays in the future. 
-
+## These are links I've compiled. I'll try to have a mixture of primary and secondary work. I'll be adding commentary as is necessary. I will use Substack for essays. 
 
 __06.23.21__
 
