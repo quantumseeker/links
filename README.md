@@ -1,6 +1,8 @@
 ## Reference List
 ## These are links I've compiled. I'll try to have a mixture of primary and secondary work. I'll be adding commentary as is necessary. I will use Substack for essays. 
 
+## Substack: https://jw010.substack.com/p/coming-soon
+
 __06.23.21__
 
 Looking at literature I found in relation to Julien Benda (1867-1956)
